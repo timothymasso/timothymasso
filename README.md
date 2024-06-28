@@ -1,8 +1,6 @@
 ## Hi there 👋
 
 ![](https://64.media.tumblr.com/8b3069fc3e05d132dab1b4b64dc04282/4c32a6a99d1fe04c-e4/s400x600/8471a81202d39aa79a466297dc44e76c80d8ff9a.gifv)
-![](https://64.media.tumblr.com/f69ee3ac8e1b8c23c99a36721d4550b3/7b1aa6c0c33459b7-dd/s400x600/34e0855933b7bd5e735c97b70b962eb1d98e04fd.gifv)
-
 
 
 
