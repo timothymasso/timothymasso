@@ -1,5 +1,4 @@
-is this thing on?
-
+I love my mom
 
 
 
