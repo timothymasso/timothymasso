@@ -1,6 +1,4 @@
-## Gather 'round 
-
-![](https://64.media.tumblr.com/3a1f11323c1f579f6b55720928c2c8c4/5c9e3275372ec85e-77/s400x600/b9677d85fb81676fb66d6b5de51ae22f8d6630b3.gifv)
+is this thing on?
 
 
 
