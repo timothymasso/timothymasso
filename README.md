@@ -1,6 +1,6 @@
 pardon the mess, still figuring this thing out
 
-[link text](timotymasso.com)
+[my website](timothymasso.com)
 
 
 
