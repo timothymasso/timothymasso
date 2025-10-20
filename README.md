@@ -1,5 +1,3 @@
-pardon the mess, still figuring this thing out
-
 [my website](https://timothymasso.com/)
 
 
